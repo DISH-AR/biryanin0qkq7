@@ -1,1 +1,0 @@
-# biryanin0qkq7
